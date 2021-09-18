@@ -1,5 +1,4 @@
-hey! i am no policy! i post stuff here sometimes
-
+i make things of an incredibly low quality
 <!---
 nopolicyy/nopolicyy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
